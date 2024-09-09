@@ -13,7 +13,7 @@ I’m **Ahmad**, a full-stack developer who’s passionate about crafting seamle
 ⚡️ If you're looking to collaborate or just chat, feel free to reach out!
 
 📫 How to reach me 
-   - X [https://x.com/he_is_logical]
+   - [Twitter](https://x.com/_he_is_logical?t=49UvsZ2-UD6yxWPT9jR5PQ&s=09)
    - LinkedIn [https://linkedIn.com]
 
 

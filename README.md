@@ -1,3 +1,5 @@
+👀 **IT'S THIS PROFILE!**
+
 👋 **Hey!** Looks like you stumbled upon my profile, or maybe you’re here to know more about me. Either way, welcome!
 
 I’m **Ahmad**, a full-stack developer who’s passionate about crafting seamless web experiences. Here’s a bit about what I do:
@@ -14,7 +16,8 @@ I’m **Ahmad**, a full-stack developer who’s passionate about crafting seamle
 
 📫 **How to reach me**
    - [Twitter](https://x.com/_he_is_logical?t=49UvsZ2-UD6yxWPT9jR5PQ&s=09)
-     - [LinkedIn](https://www.linkedin.com/in/rabiu-ahmad-5b178b25a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
+   - [LinkedIn](https://www.linkedin.com/in/rabiu-ahmad-5b178b25a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+   - [Mail](mailto:ahmadrabiu8787@gmail.com) 
 
 
 <!---

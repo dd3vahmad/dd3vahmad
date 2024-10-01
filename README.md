@@ -15,9 +15,9 @@ I’m **Ahmad**, a full-stack developer who’s passionate about crafting seamle
 ⚡️ If you're looking to collaborate or just chat, feel free to reach out!
 
 📫 **How to reach me**
-   - [Twitter](https://x.com/dd3vahmad?t=49UvsZ2-UD6yxWPT9jR5PQ&s=09)
-   - [LinkedIn](https://www.linkedin.com/in/rabiu-ahmad-5b178b25a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-   - [Mail](mailto:ahmadrabiu8787@gmail.com) 
+   - [On Twitter](https://x.com/dd3vahmad)
+   - [On LinkedIn](https://www.linkedin.com/in/rabiuahmad)
+   - [Via Mail](mailto:ahmadrabiu8787@gmail.com) 
 
 
 <!---

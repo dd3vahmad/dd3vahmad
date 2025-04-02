@@ -1,5 +1,6 @@
-📫 **How to reach me** => [My Portfolio](https://theahmad.me)
+Born to be creative. Forced to write code
 
+Hello from the [cosmo](https://theahmad.me)
 
 <!---
 dd3vahmad/dd3vahmad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,16 +1,8 @@
-─── ⋆⋅☆⋅⋆ ──
-
-⋆✰00: 00✰⋆
-
 ✨ *Born to be creative. Forced to write code* 💫
 
-✨ Hi....from the [cosmos](https://theahmad.me) 🌍 
-
-⋆⭒˚.⋆🪐 ⋆⭒˚.⋆
+✨ Hi....from the [cosmos](https://theahmad.me) 🌍 ⋆⭒˚.⋆🪐 ⋆⭒˚.⋆
 
 ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
-
--ˋˏ✄┈┈┈┈
 
 <!---
 dd3vahmad/dd3vahmad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

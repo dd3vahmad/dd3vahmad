@@ -1,6 +1,6 @@
-Born to be creative. Forced to write code
+✨ *Born to be creative. Forced to write code* 💫
 
-Hello from the [cosmo](https://theahmad.me)
+☄️ Hi from the [cosmos](https://theahmad.me) 🌍
 
 <!---
 dd3vahmad/dd3vahmad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

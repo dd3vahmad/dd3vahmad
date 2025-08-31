@@ -1,4 +1,4 @@
-_> I build stuff :/
+✨ _I build stuff :/_
 
 ✨ *Born to be creative. Forced to write code* 💫
 
